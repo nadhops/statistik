@@ -1,0 +1,2 @@
+# statistik
+bismillah dulu ya
